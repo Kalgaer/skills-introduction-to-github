@@ -9,3 +9,8 @@
 <img src="https://suchscience.net/wp-content/uploads/2024/09/v2-incrb-saxh5.jpg" width="700">
 <img src="https://t3.ftcdn.net/jpg/05/80/74/04/360_F_580740494_9R9vqDM4zshhNeEMIFgCFYh24bVuqkNa.jpg" width="700">
 <img src="https://i.guim.co.uk/img/media/e88dcd7fdad6d25e38e1c0cc129f28b2ae485b25/0_1488_3334_1999/master/3334.jpg?width=465&dpr=1&s=none&crop=none" width="700">
+
+### I think my obsession with dragons began with this one:
+<img src="https://assets-prd.ignimgs.com/2022/01/28/spyro-the-dragon-1-button-1643354479684.jpg" width="900">
+
+- 
